@@ -1,0 +1,1 @@
+[![Image](https://drive.google.com/u/0/drive-viewer/AKGpihbcQ70K6WIjooPgE9VjHIecGu0xKQLj8CFFUDTU60uDuQ4XpItCd2A6F6Wk8sZ4Hh2GagNOUmnAR2LJyUV0YuKGAjvOXYcRbi4=s12800-rw-v1)](https://discord.com/channels/830872854677422150/1338378152342327306)
